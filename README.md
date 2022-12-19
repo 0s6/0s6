@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @0s6
 - 👀 I’m interested in technologie 
 - 🌱 I’m currently learning coding
-- 📫 How to reach me discord: Skulldugger#0001
+- 📫 How to reach me discord: Skulldugger#2558
